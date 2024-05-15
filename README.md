@@ -1,11 +1,11 @@
-### Oii, bem vindo ao meu perfil 🫶
+### Oiii, bem vindo ao meu perfil 🍒
 
 Meu nome é Rebeca Vitória
 
 - Estudo no Salvador de Leone e faço o itinerário de exatas
 - Vou aprender e desenvolver linguagem de java e compartilhar aqui com vocês
 
-  ### Você pode falar comigo 🌻
+  ### Você pode falar comigo 🌼
 
   @rebecavitoria550
 
